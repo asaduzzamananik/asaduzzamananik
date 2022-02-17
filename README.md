@@ -1,3 +1,1 @@
-### Hi there 👋
 
-I am just a guy trying to understand how things work..............
